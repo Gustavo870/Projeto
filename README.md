@@ -10,3 +10,4 @@
 ## Apresentações:
 
 ° As imagens do projeto estão nesse link:https://www.canva.com/design/DAGUfeb0TPo/sJPzmjoJeDv-deZepfbdqw/edit
+° O video:
