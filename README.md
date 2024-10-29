@@ -13,3 +13,5 @@ A ideia do projeto está nesse link:https://gustavo870.github.io/projetosuellyn/
 
 * As imagens do projeto estão nesse link:https://www.canva.com/design/DAGUfeb0TPo/sJPzmjoJeDv-deZepfbdqw/edit
 * O video:
+
+* equipe: Giovana S., Gustavo H, azaffe, emanuelle scussel
