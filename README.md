@@ -9,4 +9,4 @@
 
 ## Apresentações:
 
-° Nosso projeto possui imagens como você pode ver na pasta imagens
+° As imagens do projeto estão nesse link:https://www.canva.com/design/DAGUfeb0TPo/sJPzmjoJeDv-deZepfbdqw/edit
